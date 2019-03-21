@@ -1,4 +1,4 @@
-# 地方自治法
+# 地方自治法（抜粋）
 
 http://elaws.e-gov.go.jp/search/elawsSearch/elaws_search/lsg0500/detail?lawId=322AC0000000067#2287
 
